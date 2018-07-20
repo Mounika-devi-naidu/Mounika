@@ -1,0 +1,2 @@
+# Mounika
+Mounika is an digital marketing executive with a handful of experience in reaching the stars with her innovative tactics. She has a flair for presentation, a knack for social media and a way for digital marketing. Succeeded in online advertising campaigns that produced tremendous media buzz and built an influential online reputation for many substantial brands. Always up-to-date with the latest trends and best practices in online marketing.
